@@ -1,6 +1,6 @@
 hi it's me exit-scammed your favourite minemen. 
 -
-discord: why don't#0001 \
+discord: why don't#0425 \
 im sigma lover and a fellow osu player enjoying game \
 i did make this account for funny things so please ignore w 
 
