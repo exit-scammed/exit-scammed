@@ -1,4 +1,4 @@
-hi it's me exit-scammed your favourite minemen. 
+exit-scammed lol
 -
 discord: why don't#0425 \
 im sigma lover and a fellow osu player enjoying game \
