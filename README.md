@@ -1,6 +1,6 @@
 exit-scammed lol
 -
-discord: why don't#0425 \
+discord: why dont#0425 \
 im sigma lover and a fellow osu player enjoying game \
 i did make this account for funny things so please ignore w 
 
