@@ -6,7 +6,7 @@ i did make this account for funny meinkraft things so please ignore w
 
 be a part of [evolife](https://evolife.club).
 
-![](https://komarev.com/ghpvc/?username=exit-scammed) \ 
+![](https://komarev.com/ghpvc/?username=exit-scammed) 
 
 I mainly code on these languages...
 -
