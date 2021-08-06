@@ -1,6 +1,9 @@
 WYSI WYFSI
 -
 discord: why dont#0425 \
+
+![](https://discord.c99.nl/widget/theme-4/711819685024497694.png)
+
 im a osu player who randomly farm and enjoy game \
 i did make this account for funny meinkraft things so please ignore w 
 
