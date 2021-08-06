@@ -1,6 +1,6 @@
 WYSI WYFSI
 -
-discord: why dont#0425 \
+discord: why dont#0425 
 
 ![](https://discord.c99.nl/widget/theme-4/711819685024497694.png)
 
