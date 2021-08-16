@@ -8,12 +8,7 @@ i did make this account for funny meinkraft things so please ignore w
 
 ![](https://komarev.com/ghpvc/?username=exit-scammed) 
 
-I mainly code on these languages...
--
-![java](https://img.shields.io/badge/-java-blue?style=for-the-badge&logo=java&logoColor=white)
-![kotlin](https://img.shields.io/badge/-kotlin-blue?style=for-the-badge&logo=kotlin&logoColor=white)
+![java](https://img.shields.io/badge/-java-blue?style=for-the-badge&logo=java&logoColor=white) is love, Java is life
 
 ![](https://github-readme-stats.vercel.app/api?username=exit-scammed&show_icons=true&theme=tokyonight)
-
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=exit-scammed)
 
