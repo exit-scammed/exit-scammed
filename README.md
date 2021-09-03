@@ -8,7 +8,7 @@ i did make this account for funny meinkraft things so please ignore w
 
 ![](https://komarev.com/ghpvc/?username=exit-scammed) 
 
-![java](https://img.shields.io/badge/-java-blue?style=for-the-badge&logo=java&logoColor=white) is love, Java is life
+![java](https://img.shields.io/badge/-java-blue?style=for-the-badge&logo=java&logoColor=white)? Sounds like a fruit.
 
 ![](https://github-readme-stats.vercel.app/api?username=exit-scammed&show_icons=true&theme=tokyonight)
 
